@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-- 🔭 I’m currently looking for new work to expand my skillset and bring value to my next adventure!
+- 🔭 I’ve moved to a more Project / Product focused skillset. While I keep my developer skills somewhat sharp as needed, I am no longer involved directly in the Software Industry. I am however working with small and local businesses to help them get their presence promoted, and if you're interested in that please send me a message on LinkedIn, and I would be happy to expand on that with you!
 - 🤔 I’m looking for help with growth and development as a Leader within the Tech industry.
 - 💬 Ask me about my love for Software Development, Leadership, Disney, Marvel, or Dungeons & Dragons.
 - 😄 Pronouns: He / Him
